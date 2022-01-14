@@ -5,3 +5,5 @@ Anlee Feng Chang - 12563690
 Darlam Alves da Silva - 12682435
 Hugo Ferreira Gabriel Vieira - 12563710
 Mariana Kaori Randig Ekuni - 12675722
+
+Video: https://youtu.be/gM5-yxOwWJ0
